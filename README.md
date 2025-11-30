@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Arzstyle  
+# 👋 Hi, I’m @Akbar 
 👨‍💻 I'm **Muhamad Akbar Rizky Saputra**
 
 ### About Me
